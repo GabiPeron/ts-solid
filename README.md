@@ -100,6 +100,5 @@ Isso irá:
 
 **Gabriel Peron**  
 🔗 [gabrielperon.dev](https://gabrielperon.dev)  
-💼 [LinkedIn](https://www.linkedin.com/in/gabrielperon)  
 
 ---
